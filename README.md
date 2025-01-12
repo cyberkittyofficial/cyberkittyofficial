@@ -1,4 +1,4 @@
-<h1 align="center">meow:3 me is cyb3rkittyy</h1>
+<h1 align="center">meow:3 </h1>
 <h3 align="center">no, curiosity did not kill the cat 💻🐈</h3>
 
 <h3 align="left">Connect with me:</h3>
